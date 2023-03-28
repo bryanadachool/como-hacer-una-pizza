@@ -11,7 +11,7 @@ haremos una pizza tan sencilla que todos podran hacerla desde la comodidad de su
 
 ingredientes:   
 
-1. harina de trigo.
+1. harina de trigo...
 2. polvo de hornear
 3. queso costeño
 4. tomates
