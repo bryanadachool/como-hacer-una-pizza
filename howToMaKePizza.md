@@ -26,10 +26,3 @@ tercer paso: luego de que ya tengamos la masa lista, la dejamos reposar por 15 m
 cuarto paso: pasado los 15 minutos, procedemos a poner la masa en el meson y con la botella de vidrios la estiramos hasta que quede tipo tortilla gruesa.
 quinto paso: luego que tenemos la masa estirada, le pondremos mucho queso rayado, encima tomate y salchichas y mas encima queso.
 sexto paso: por ultimo le agregamos unas cucharadas de salsa de tomate y ponemos nuestra pizza en la salten durante media hora a fuego bajito y de esta manera se hace una pizza casera y muy rica.
-
-primer paso: echamos sobre la mesa media bolsa de harina, sal y azucar al gusta y 2 huevos
-segundo paso: procedemos a echarle 2 tasas de agua a la masa y amasar muy bien hasta que la masa quede homogenea.
-tercer paso: luego de que ya tengamos la masa lista, la dejamos reposar por 15 minutos
-cuarto paso: pasado los 15 minutos, procedemos a poner la masa en el meson y con la botella de vidrios la estiramos hasta que quede tipo tortilla gruesa.
-quinto paso: luego que tenemos la masa estirada, le pondremos mucho queso rayado, encima tomate y salchichas y mas encima queso.
-sexto paso: por ultimo le agregamos unas cucharadas de salsa de tomate y ponemos nuestra pizza en la salten durante media hora a fuego bajito y de esta manera se hace una pizza casera y muy rica.
