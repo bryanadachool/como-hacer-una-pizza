@@ -27,4 +27,4 @@ cuarto paso: pasado los 15 minutos, procedemos a poner la masa en el meson y con
 quinto paso: luego que tenemos la masa estirada, le pondremos mucho queso rayado, encima tomate y salchichas y mas encima queso.
 sexto paso: por ultimo le agregamos unas cucharadas de salsa de tomate y ponemos nuestra pizza en la sarten durante media hora a fuego bajito y de esta manera se hace una pizza casera y muy rica.
 
-séptimo paso: Ponerle mucho cariño mientras pasa los 30 minutos cuidarla no dejarla pasar de fuego y listo servirla para ser probada y quedar estupefacto de esos ricos sabores.
+séptimo paso: Ponerle mucho cariño mientras pasa los 30 minutos cuidarla no dejarla pasar de fuego y listo servirla para ser probada y quedar estupefacto de esos ricos sabores.F
